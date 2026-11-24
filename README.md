@@ -1,4 +1,4 @@
-# Dhruthi-with-ink
+# Dhruthi-with-ink.
 Emotions embedded with ink
 ಅವಳು ಅಳುಕಿಲ್ಲದವಳು
 ಪರಿಸ್ಥಿತಿಯ ಕೈ ಗೊಂಬೆಯಾದವಳು 
